@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with vip grid trading bot for futures | API-integration + order-book-analysis, the #1 grid trading bot for futures. Includes API-integration and
 
 
 
